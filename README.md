@@ -1,1 +1,0 @@
-# Yasuko-Koyama.github.io
